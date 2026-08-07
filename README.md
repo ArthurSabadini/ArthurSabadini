@@ -1,6 +1,6 @@
 ## Hi, I'm @ArthurSabadini 
 
-I am currently studying for a B.ENG in Computer Engineering.
+I am currently studying for a B.ENG in Electrical Engineering.
 
 📫 How to reach me<br>
 
